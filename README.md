@@ -7,6 +7,7 @@
 "I have a dream." Martin Luther King
 
 "quote" - a person
+
 "One must imagine sysphus happy" - Camus
 
 "Do not go gentle into that goodnight" - Dylan Thomas
