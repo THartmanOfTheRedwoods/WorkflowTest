@@ -6,6 +6,8 @@
 
 "Live, Love, Laugh" -Bessie Stanley
 
+"Live, Love, Laugh" -Bessie Anderson Stanley
+
 "I have a dream." Martin Luther King
 
 "Do not go gentle into that good night." Dylan Thomas
