@@ -6,7 +6,7 @@
 
 "I have a dream." Martin Luther King
 
-"Do not go gentle into that goodnight" - Dylan Thomas
+"Do not go gentle into that good night." Dylan Thomas
 
 "I think ya sent her a little-bit too hard there bud" - A Drunk Canadian Guy
 
