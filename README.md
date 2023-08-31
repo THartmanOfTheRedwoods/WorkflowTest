@@ -15,3 +15,4 @@
 "Anti-social behavior is a trait of intelligence in a world full of conformists." Nikola Tesla
 
 "I destroy my enemies when I make them my friends." - Lincoln
+"I destroy my enemies when I make them my friends." - Lincoln
