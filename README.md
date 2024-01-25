@@ -21,3 +21,4 @@
 "The more you sweat in practice, the more you bleed in battle" -Anonymous
 
 "Mathematics is the queen of sciences, and arithmetic is the queen of mathematics." - Carl Friedrich Gauss
+""Two things are infinite: the universe and human stupidity; and I'm not sure about the universe." - Albert Einstein
