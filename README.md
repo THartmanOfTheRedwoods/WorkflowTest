@@ -17,3 +17,5 @@
 "Be the change you want in the world" - Anonymous
 
 "Mathematics is the queen of sciences, and arithmetic is the queen of mathematics." - Carl Friedrich Gauss
+
+"The only impossible journey is the one you never begin." - Tony Robbins
