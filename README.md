@@ -15,3 +15,7 @@
 "Anti-social behavior is a trait of intelligence in a world full of conformists." Nikola Tesla
 
 "Be the change you want in the world" - Anonymous
+
+"Do or do not there is no try" - Yoda
+
+"I'm just a simple man trying to make his way in the galaxy" - Jango Fett
