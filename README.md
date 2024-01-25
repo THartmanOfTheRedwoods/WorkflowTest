@@ -23,3 +23,5 @@
 "Mathematics is the queen of sciences, and arithmetic is the queen of mathematics." - Carl Friedrich Gauss
 
 "The only impossible journey is the one you never begin." - Tony Robbins
+
+"Be the change that you wish to see in the world." - Mahatma Gandhi
